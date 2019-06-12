@@ -1,2 +1,0 @@
-# praksa
-bka bla
